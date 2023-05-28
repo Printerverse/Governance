@@ -44,4 +44,4 @@ We have a network of regional partner companies ("Fulfillment Partner") that sto
    1. Please refer to our separate Return Policy for detailed information regarding returns, exchanges, and warranty coverage for our products.
 
 ## Customer Support:
-   1. If you have any questions or need assistance regarding your order or shipping, please don't hesitate to contact our sales support team on [Discord](https://discord.gg/tXdcTGGVcG) or [Email](mailto:sales.support@printerverse.net). We are here to help and will respond to your inquiries promptly.
+   1. If you have any questions or need assistance regarding your order or shipping, please don't hesitate to contact our sales support team on [Discord](https://discord.gg/GZj3ug3dHU) or [Email](mailto:sales.support@printerverse.net). We are here to help and will respond to your inquiries promptly.
